@@ -1,1 +1,1 @@
-# AI_w_przemy-le-4.0
+# AI_w_przemysle-4.0
